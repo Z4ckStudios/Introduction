@@ -1,5 +1,5 @@
-- User: Ph4nt0mZ4ck - 16 | he/him | INTJ
+Ello everyone, I'm Zack aka the 16 year old who has quite the dictionary of slurs
 📜
-Dev: Z4ck Studios - Genre: Horror/Retro - Current Project: PReDev + CR
-🛠️
-Z4ck: http://m.youtube.com/@Ph4nt0mZ4ck
+I'm also a youtuber, game dev, and an animator
+📼
+Current Projects: PI + CR
